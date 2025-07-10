@@ -10,4 +10,4 @@
 
 这些平台专注于强行糟蹋人妻系列视频资源，涵盖多种优质内容，更新迅速，分类详细，方便用户快速查找。每个视频页面均提供时长、主演及画质等详细信息，支持高清视频播放，并可根据网络环境自动优化画质，确保流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/trua20250710/trua6 ）</span>
